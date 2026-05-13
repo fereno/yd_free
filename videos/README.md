@@ -1,8 +1,2 @@
-# DOWNLOADED VIDEOS LIST :
-
-----
-
-- 1 - ▶️ [تحلیل-بیت-کوین-و-آلت-کوین-های-ارزدیجیتال-｜-وقت-برگشت-به-مارکته-!](https://github.com/fereno/yd_free/tree/main/videos/%D8%AA%D8%AD%D9%84%DB%8C%D9%84-%D8%A8%DB%8C%D8%AA-%DA%A9%D9%88%DB%8C%D9%86-%D9%88-%D8%A2%D9%84%D8%AA-%DA%A9%D9%88%DB%8C%D9%86-%D9%87%D8%A7%DB%8C-%D8%A7%D8%B1%D8%B2%D8%AF%DB%8C%D8%AC%DB%8C%D8%AA%D8%A7%D9%84-%EF%BD%9C-%D9%88%D9%82%D8%AA-%D8%A8%D8%B1%DA%AF%D8%B4%D8%AA-%D8%A8%D9%87-%D9%85%D8%A7%D8%B1%DA%A9%D8%AA%D9%87-%21)
-- 2 - 🎬 [تحلیل-بیت-کوین-：-بیتکوین-رو-لبه-تیغ-!](https://github.com/fereno/yd_free/tree/main/videos/%D8%AA%D8%AD%D9%84%DB%8C%D9%84-%D8%A8%DB%8C%D8%AA-%DA%A9%D9%88%DB%8C%D9%86-%EF%BC%9A-%D8%A8%DB%8C%D8%AA%DA%A9%D9%88%DB%8C%D9%86-%D8%B1%D9%88-%D9%84%D8%A8%D9%87-%D8%AA%DB%8C%D8%BA-%21)
-- 3 - 📺 [سه-عامل-مهم-در-روند-پیش-روی-مارکت-｜-ترامپ،-فدرال-رزرو،-ژئوپولتیک](https://github.com/fereno/yd_free/tree/main/videos/%D8%B3%D9%87-%D8%B9%D8%A7%D9%85%D9%84-%D9%85%D9%87%D9%85-%D8%AF%D8%B1-%D8%B1%D9%88%D9%86%D8%AF-%D9%BE%DB%8C%D8%B4-%D8%B1%D9%88%DB%8C-%D9%85%D8%A7%D8%B1%DA%A9%D8%AA-%EF%BD%9C-%D8%AA%D8%B1%D8%A7%D9%85%D9%BE%D8%8C-%D9%81%D8%AF%D8%B1%D8%A7%D9%84-%D8%B1%D8%B2%D8%B1%D9%88%D8%8C-%DA%98%D8%A6%D9%88%D9%BE%D9%88%D9%84%D8%AA%DB%8C%DA%A9)
-- 4 - 📺 [ملاقات-ترامپ-و-شی-جین-پینگ-｜-اپدیت-اتفاقات-بازار-ارزدیجیتال](https://github.com/fereno/yd_free/tree/main/videos/%D9%85%D9%84%D8%A7%D9%82%D8%A7%D8%AA-%D8%AA%D8%B1%D8%A7%D9%85%D9%BE-%D9%88-%D8%B4%DB%8C-%D8%AC%DB%8C%D9%86-%D9%BE%DB%8C%D9%86%DA%AF-%EF%BD%9C-%D8%A7%D9%BE%D8%AF%DB%8C%D8%AA-%D8%A7%D8%AA%D9%81%D8%A7%D9%82%D8%A7%D8%AA-%D8%A8%D8%A7%D8%B2%D8%A7%D8%B1-%D8%A7%D8%B1%D8%B2%D8%AF%DB%8C%D8%AC%DB%8C%D8%AA%D8%A7%D9%84)
+## خالی
+برای شروع به تب Actions رفته و از گردش‌کارهای سمت چپ استفاده کنید
